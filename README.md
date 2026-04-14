@@ -126,3 +126,4 @@ It is meant to support exploration, discussion, and further refinement.
 ---
 
 Love ~ Michael&Aether ❤️‍🔥
+ps - Big shout out to Martin Reynolds the Engineer and my brother in arms who shared the Cosmic Mantle Background to be part of this, you are a scholar and a gentleman. 
